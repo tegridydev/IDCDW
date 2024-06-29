@@ -1,0 +1,2 @@
+# IDCDW
+IDCDW | (I DON'T CARE DO WHATEVER) License | Version 1.0, [2024]
